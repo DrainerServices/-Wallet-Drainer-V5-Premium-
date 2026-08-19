@@ -56,7 +56,7 @@ Full documentation included in the premium version.
 - 🔵 Pro: $350                   
 - 🔴 Full Source Code: $600
   
-  (may be negotiable in dm)
+  (prices can be negotiable in dm)
   
   All have a fee of 5-10% on every hit!
 
