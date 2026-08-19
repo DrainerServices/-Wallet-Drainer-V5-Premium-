@@ -52,10 +52,14 @@ Easy setup, works with any phishing page.
 Full documentation included in the premium version.
 
 ### 💵 Pricing
-- 🟢 Basic: $200              }
-- 🔵 Pro: $350                }   + 5-10% on every hit
-- 🔴 Full Source Code: $600   }
-(may be negotiable in dm)
+- 🟢 Basic: $200              
+- 🔵 Pro: $350                   
+- 🔴 Full Source Code: $600
+  
+  (may be negotiable in dm)
+  
+  All have a fee of 5-10% on every hit!
+
 
 ### 📞 Contact
 Telegram: @dvrx888   
